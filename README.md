@@ -14,5 +14,5 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-I'm now studying computer science and technology at Hefei University of Technology
+I'm now studying computer science and technology at Hefei University of Technology  
 Currently focusing on grade point improvement and English learning. See you in the United States in 2023!
